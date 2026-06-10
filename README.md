@@ -1,1 +1,1 @@
-# Esame_TEST-MANUTENZIONE_Lorenzo_Cuminetti.2026
+# Esame_REDAZ.MANUALISTICA_Lorenzo_Cuminetti.2026
